@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @maxtololo
+- 👀 I’m interested in ... Automation, AI, Crypto
+- 🌱 I’m currently learning ... Python
+- 📫 Not reachable for people
